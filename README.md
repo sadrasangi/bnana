@@ -1,5 +1,4 @@
 # bnana
-banananana
 hi
 this thing is just for fun and it`s total bullshit.
 i just want to write this for fun to see if i get any stars
